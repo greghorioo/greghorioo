@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @greghorioo
-- 👀 I’m interested in ...
+- 👀 I’m interested in myself
 - 🌱 I’m currently learning on how to make a full interactive website
 - 📫 you guys can reach me on insta: @greghorioo
 - 😄 Pronouns: he/him
